@@ -1,2 +1,3 @@
-# New-Years-Eve
-🎉🥳🎊New Year's Eve blog🎉🥳🎊
+# 🎉🥳🎊New Year's Eve🎉🥳🎊
+## 2022: Events, Events, Events! Catergory: Gaming
+
