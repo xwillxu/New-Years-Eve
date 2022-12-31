@@ -10,3 +10,5 @@ This New Year's Eve I noticed a lot of new events on Roblox. Currently I normall
 
 ### Bedwars Changes Overall
 So now we will talk about what did the bedwars players do.
+1. Grim Reaper Everywhere: Relating to the new kits many people choose Grim Reaper. This may relate to Grim Reapers popularity around kids. Or just that the kit skin looks good.
+2. Newbies Join: Seeing as the title
