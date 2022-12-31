@@ -9,3 +9,4 @@ This New Year's Eve I noticed a lot of new events on Roblox. Currently I normall
 5. New Items: In the last change in Bedwars I talked about new items. The new items all have to do with New Year's Stuff. Example: Sparkler.
 
 ### Bedwars Changes Overall
+Relating to the new kits many people choose Grim Reaper. Again this is probably because Grim Reaper is Famous(for some reason).
