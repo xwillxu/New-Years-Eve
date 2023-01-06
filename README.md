@@ -11,7 +11,7 @@ This New Year's Eve I noticed a lot of new events on Roblox. Currently I normall
 ### Bedwars Changes Overall
 So now we will talk about what did the bedwars players do.
 1. Grim Reaper Everywhere: Relating to the new kits many people choose Grim Reaper. This may relate to Grim Reapers popularity around kids. Or just that the kit skin looks good.
-2. Newbies Join: Seeing as the title changed, many new people joined not really knowing how to play the game. Bruh Momments. I saw at least two different players jump into the void for no reason.
+2. Newbies Join: Seeing as the title changed, many new people joined not really knowing how to play the game. Bruh Momments. I saw at least two different players jump into the void for no reason. Plus in the chat a bunch of people said "How do I play this game." Me be like "How did you join this game in the first place?"
 3. Lucky Block Flooded: Tens of thousands of people joined Lucky Block for the Lucky Block Ball Drop and the New Year's Lucky Block. 
 
 ## 2022: It's Short But It Is Done!
